@@ -24,17 +24,13 @@ A fun and creative song challenge for every day of October, filled with a variet
 
 ## Day 4: 雨音 (Amaoto - Sound of Rain)
 *Description*: The rhythm of rain evoking deep thoughts or emotions.
-- **Complicated** by Avril Lavigne
-- **Fly-day Chinatown** by 泰葉
-- **Nobody** by One Republic
+- **Set Fire to the Rain** by Adele
 
 ---
 
 ## Day 5: アイドル (Aidoru - Idol)
 *Description*: Bright, energetic, and filled with charm, reflecting idol culture.
-- **Gimme Chocolate!!** by Babymetal
-- **サンセット・ロード** by 高橋玲子
-- **PA PA YA!!** by Babymetal
+- **Heavy Rotation** by JKT48
 
 ---
 
@@ -64,9 +60,8 @@ A fun and creative song challenge for every day of October, filled with a variet
 
 ## Day 10: 心のリズム (Kokoro no Rhythm - Heartbeat)
 *Description*: The rhythm of the heart, whether steady or racing.
-- **R U Mine?** by Arctic Monkeys
-- **Destiny** by NEFFEX
-- **サンセット・ロード** by 高橋玲子
+- **Sway** by Michael Bubble/Frank Sinatra
+- **Daddy! Daddy! Do!** by Masayuki Suzuki
 
 ---
 
@@ -78,17 +73,13 @@ A fun and creative song challenge for every day of October, filled with a variet
 
 ## Day 12: 咲く (Saku - Bloom)
 *Description*: Personal growth, blossoming into one’s true self.
-- **KICK BACK** by Kenshi Yonezu
-- **サンセット・ロード** by 高橋玲子
-- **7 Years** by Lukas Graham
+- **The Best Day Ever** by SpongeBob SquarePants
 
 ---
 
 ## Day 13: 万華鏡 (Mangekyou - Kaleidoscope)
 *Description*: A kaleidoscope of shifting emotions, vibrant and complex.
-- **unravel** by TK from Ling tosite sigure
-- **Plastic Love** by Mariya Takeuchi
-- **Fly-day Chinatown** by 泰葉
+- **Wonderwall** by Oasis
 
 ---
 
@@ -106,9 +97,7 @@ A fun and creative song challenge for every day of October, filled with a variet
 
 ## Day 16: 星空 (Hoshizora - Starry Skies)
 *Description*: A sense of wonder and awe under the starry skies.
-- **Mayonaka no Door / Stay With Me** by Miki Matsubara
-- **Plastic Love** by Mariya Takeuchi
-- **A Thousand Years** by Christina Perri
+- **Sparkle** by Radwimps (OST Your Name.)
 
 ---
 
@@ -162,9 +151,7 @@ A fun and creative song challenge for every day of October, filled with a variet
 
 ## Day 25: 重力 (Juuryoku - Gravity)
 *Description*: The pull of gravity, whether physical or emotional, weighing us down or keeping us grounded.
-- **Hysteria** by Muse
-- **Fly-day Chinatown** by Yasu
-- **Destiny** by NEFFEX
+- **Creep** by Radiohead
 
 ---
 
@@ -176,9 +163,7 @@ A fun and creative song challenge for every day of October, filled with a variet
 
 ## Day 27: 浮遊 (Fuyuu - Floating)
 *Description*: A light, weightless feeling, floating through space or time.
-- **Plastic Love** by Mariya Takeuchi
-- **サンセット・ロード - Non Stop Mix ver.** by 高橋玲子
-- **Mayonaka no Door / Stay With Me** by Miki Matsubara
+- **Terbang** by Kotak
 
 ---
 
@@ -196,9 +181,7 @@ A fun and creative song challenge for every day of October, filled with a variet
 
 ## Day 30: フィナーレ (Finale)
 *Description*: The grand finale, ending on a high note.
-- **Don't Stop Me Now** by Queen
-- **サンセット・ロード** by 高橋玲子
-- **Akatsuki** by Babymetal
+- **Sweetn Victory** by SpongeBob SquarePants
 
 ---
 
