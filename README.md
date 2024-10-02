@@ -181,7 +181,7 @@ A fun and creative song challenge for every day of October, filled with a variet
 
 ## Day 30: フィナーレ (Finale)
 *Description*: The grand finale, ending on a high note.
-- **Sweetn Victory** by SpongeBob SquarePants
+- **Clock Strikes** by One Ok Rock
 
 ---
 
