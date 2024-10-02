@@ -19,7 +19,7 @@ A fun and creative song challenge for every day of October, filled with a variet
 ## Day 3: 月光 (Gekkou - Moonlight)
 *Description*: Reflect under the gentle glow of the moon, with emotions laid bare.
 - **I Really Want to Stay at Your House** by Rosa Walton
-
+- **Talking to the Moon* by Bruno Mars
 ---
 
 ## Day 4: 雨音 (Amaoto - Sound of Rain)
