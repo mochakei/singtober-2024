@@ -134,7 +134,7 @@ A fun and creative song challenge for every day of October, filled with a variet
 ## Day 22: 野生の心 (Yasei no Kokoro - Wild Heart)
 *Description*: Unleash your inner wild heart, free and untamed.
 - **We Are** by ONE OK ROCK
-
+- **I Was King** by ONE OK ROCK
 ---
 
 ## Day 23: 未来への道 (Mirai e no Michi - The Road Ahead)
