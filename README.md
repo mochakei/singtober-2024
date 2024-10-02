@@ -37,7 +37,7 @@ A fun and creative song challenge for every day of October, filled with a variet
 ## Day 6: 恋の手紙 (Koi no Tegami - Love Letter)
 *Description*: A heartfelt, emotional expression of love.
 - **瞳の住人 - Remastered 2022** by L'Arc-en-Ciel
-
+- **Koiiro** - by Mosawo
 ---
 
 ## Day 7: 嵐の心 (Arashi no Kokoro - Storm Inside)
